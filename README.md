@@ -1,1 +1,1 @@
-# vikapet.github.io
+# VikiPetia.github.io
